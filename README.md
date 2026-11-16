@@ -1,2 +1,2 @@
-# deepikajoshhii.github.io
+# deepikajoshii.github.io
 Deepika joshi Portfolio
